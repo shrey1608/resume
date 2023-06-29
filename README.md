@@ -1,3 +1,3 @@
 # resume
 
-Shrey Modi resume (Updated on 5/18/2023)
+Shrey Modi resume (Updated on 6/29/2023)
